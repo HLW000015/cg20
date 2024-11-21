@@ -1,2 +1,1 @@
-# cg20
-瓜圈网- 每日吃瓜-51吃瓜-91在线吃瓜-瓜太郎吃瓜网-黑料吃瓜每日更新最新热门大瓜
+<meta http-equiv="refresh" content="1;url=https://cg588.com/" /><meta http-equiv="refresh" content="1;url=https://cg588.com/" />
